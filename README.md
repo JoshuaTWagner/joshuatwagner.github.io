@@ -1,2 +1,2 @@
-# Joshua Wagner's Personal Webstie
+# Joshua Wagner's Personal Website
 ## Under construction
