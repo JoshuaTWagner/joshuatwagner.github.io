@@ -26,7 +26,7 @@ https://discord.com/users/206958285193084929
 
 **Thumbnails (priced each)**
 * One - $7.50
-* 2-4 - $6.50 each
+* 2-4 - $6.50
 * 5+ - $5.50
 
 Other charges may apply. Contact for details.
