@@ -9,7 +9,7 @@ I specialize in gaming-focused content creation for online video platforms. I ca
 
 Turnaround may vary depending on complexity of the work and real-life circumstances (I do work a full time job). You will receive regular updates and previews on progress and for revisions.
 
-If you are interested, contact me on Discord:
+**If you are interested, contact me on Discord:**
 
 username: jiggyswagner
 
@@ -19,20 +19,20 @@ https://discord.com/users/206958285193084929
 ### Rates
 **Short form (One minute or less -- for Youtube Shorts, Tik Tok, Reels)**
 
-Basic edits - $20 per video
+* Basic edits - $20 per video
 
-Advanced edits  - $50 per video
+* Advanced edits  - $50 per video
 
 **Long form (Greater than one minute)**
 
-All edits - $20 an hour
+* All edits - $20 an hour
 
 **Thumbnails**
-One thumbnail - $10
+* One thumbnail - $10
 
-Two - Four thumbnail bundle - $8 per thumbnail
+* Two - Four thumbnail bundle - $8 per thumbnail
 
-5+ Thumbnail bundle - $6.50 per thumbnail
+* 5+ Thumbnail bundle - $6.50 per thumbnail
 
 Other charges may apply. Contact for details.
 
@@ -52,8 +52,8 @@ https://youtu.be/ImutmPYZqD0
 https://www.youtube.com/watch?v=puSTlCp9_ZI
 
 ## Contact Me
-joshua.t.wagner204@gmail.com
+* joshua.t.wagner204@gmail.com
 
-linkedin.com/in/joshtwagner
+* linkedin.com/in/joshtwagner
 
-https://bsky.app/profile/joshwag.bsky.social
+* https://bsky.app/profile/joshwag.bsky.social
