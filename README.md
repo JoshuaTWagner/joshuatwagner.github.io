@@ -33,20 +33,26 @@ Other charges may apply. Contact for details.
 
 ### Portfolio
 **Short Form - Basic Edits**
+ 
 
-https://www.youtube.com/shorts/W_956yzqM7M
+[![Clip from a Skyrim Stream](https://img.youtube.com/vi/W_956yzqM7M/hqdefault.jpg)](https://www.youtube.com/shorts/W_956yzqM7M)
+
 
 **Short Form - Advanced Edits**
 
-[![The Pikmin 2 Cave Experience](https://img.youtube.com/vi/2Uuwwr2BTgk/maxresdefault.jpg)](https://youtu.be/2Uuwwr2BTgk)
+[![The Pikmin 2 Cave Experience](https://img.youtube.com/vi/2Uuwwr2BTgk/hqdefault.jpg)](https://youtu.be/2Uuwwr2BTgk)
+
+[![Final Fnatasy 7 Meme](https://img.youtube.com/vi/ImutmPYZqD0/hqdefault.jpg)](https://youtu.be/ImutmPYZqD0)
 
 **Long Form**
 
-https://www.youtube.com/watch?v=puSTlCp9_ZI
+[![Skyrim: An Immersive and Lore-Accurate Adventure](https://img.youtube.com/vi/puSTlCp9_ZI/hqdefault.jpg)](https://youtu.be/puSTlCp9_ZI)
 
 ## Contact Me
-* joshua.t.wagner204@gmail.com
+* [Email](mailto:joshua.t.wagner204@gmail.com)
 
-* linkedin.com/in/joshtwagner
+* [Linkedin](https://www.linkedin.com/in/joshtwagner/)
 
-* https://bsky.app/profile/joshwag.bsky.social
+* [BlueSky](https://bsky.app/profile/joshwag.bsky.social)
+
+* [Discord](https://discord.com/users/206958285193084929)
