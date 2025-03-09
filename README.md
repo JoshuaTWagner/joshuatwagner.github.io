@@ -18,21 +18,16 @@ https://discord.com/users/206958285193084929
 
 ### Rates
 **Short form (One minute or less -- for Youtube Shorts, Tik Tok, Reels)**
-
-* Basic edits - $20 per video
-
-* Advanced edits  - $50 per video
+* Basic edits - $15 per video
+* Advanced edits  - $35 per video
 
 **Long form (Greater than one minute)**
+* All edits - $18 an hour
 
-* All edits - $20 an hour
-
-**Thumbnails**
-* One thumbnail - $10
-
-* Two - Four thumbnail bundle - $8 per thumbnail
-
-* 5+ Thumbnail bundle - $6.50 per thumbnail
+**Thumbnails (priced each)**
+* One - $7.50
+* 2-4 - $6.50 each
+* 5+ - $5.50
 
 Other charges may apply. Contact for details.
 
@@ -43,9 +38,7 @@ https://www.youtube.com/shorts/W_956yzqM7M
 
 **Short Form - Advanced Edits**
 
-https://www.youtube.com/watch?v=2Uuwwr2BTgk
-
-https://youtu.be/ImutmPYZqD0
+[![The Pikmin 2 Cave Experience](https://img.youtube.com/vi/2Uuwwr2BTgk/maxresdefault.jpg)](https://youtu.be/2Uuwwr2BTgk)
 
 **Long Form**
 
