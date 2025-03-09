@@ -11,9 +11,7 @@ Turnaround may vary depending on complexity of the work and real-life circumstan
 
 **If you are interested, contact me on Discord:**
 
-username: jiggyswagner
-
-https://discord.com/users/206958285193084929
+[https://discord.com/users/206958285193084929](https://discord.com/users/206958285193084929)
 
 
 ### Rates
